@@ -7,4 +7,4 @@ i follow at random, but there's no follow back guarantee!! :p
 
 **w2i** so that i have a chance of **responding** faster!!
 
-also feel free to sign my atabook :^)
+also feel free to sign my **atabook** :^)
