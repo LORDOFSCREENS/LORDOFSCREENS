@@ -7,6 +7,6 @@ i follow at random, but there's no follow back guarantee!! :p
 
 **w2i** so that i have a chance of **responding** faster!!
 
-feel free to sign my **atabook** and send **strawpage** gimmicks :^)
+sign my **[atabook](https://coruscants.atabook.org/)**/send **[strawpage](https://zrankroom.straw.page/)** gimmicks pls!! :^)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=j4je4orn69ob4m7lsnjly67zb&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=b3a6e2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
