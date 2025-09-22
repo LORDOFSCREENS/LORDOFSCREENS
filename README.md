@@ -1,10 +1,10 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/gsrerm.webp" alt="Your image title" width="300"/>
-
-![Visitors](https://api.visitorbadge.io/api/visitors?path=LORDOFSCREENS&label=%E2%98%86&labelColor=%23d52a7c&countColor=%23d76b72&style=plastic&labelStyle=none)
+<img src="https://files.catbox.moe/6jiekx.png" alt="Your image title" width="500"/>
 
 $${\color{#938e95}(w2i \space so \space that \space i \space have \space a \space chance \space of \space **responding** \space faster!!)}$$
+
+![Visitors](https://api.visitorbadge.io/api/visitors?path=LORDOFSCREENS&label=%E2%98%86&labelColor=%23d52a7c&countColor=%23d76b72&style=plastic&labelStyle=none)
 
 sign my **[atabook](https://coruscants.atabook.org/)**/send **[strawpage](https://zrankroom.straw.page/)** gimmicks pls!! :^)
 
