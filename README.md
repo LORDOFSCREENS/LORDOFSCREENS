@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/6jiekx.png" alt="Your image title" width="500"/>
+<img src="https://files.catbox.moe/6jiekx.png" alt="Your image title" width="450"/>
 
 ꧁ **C**oru/**B**enrey , ***W2I*** ꧂
 
