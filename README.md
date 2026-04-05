@@ -1,7 +1,5 @@
 <div align="center">
 
-<img src="https://files.catbox.moe/9zhkvr.png" alt="Your image title" width="450"/>
-
 ꧁ **C**oru/**B**enrey , ***W2I*** ꧂
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=LORDOFSCREENS&label=%E2%98%86&labelColor=%23d52a7c&countColor=%23d76b72&style=plastic&labelStyle=none)
