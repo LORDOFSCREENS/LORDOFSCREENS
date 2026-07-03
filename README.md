@@ -9,7 +9,7 @@
     <th>
 
 <br>
- $\color{#f9d49d}{\textsf{ ⋆⊱༻ Coru / Benrey ༺⊰⋆ }}$ <br>
+ $\color{#f9d49d}{\textsf{ ❁⊱༻ Coru / Benrey ༺⊰❁ }}$ <br>
  $\color{#e99569}{\textsf{ [ SHE / HE ] }}$ <br>
 $\color{#bc5953}{\textsf{ C+H is encouraged. W2I. Offtabs very frequently }}$ <br>
  $\color{#934948}{\textsf{ Sign my ATA + Strawpage Below :-) }}$ <br>
