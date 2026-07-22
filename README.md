@@ -22,11 +22,9 @@ $\color{#bc5953}{\textsf{ C+H is encouraged. W2I / IWC. Offtabs very frequently 
 
 <br>
 
-**[ATABOOK](https://coruscants.atabook.org/)** + **[SEND GIMMICKS](https://zrankroom.straw.page/)**
+**[ATABOOK](https://coruscants.atabook.org/)** + **[STRAWPAGE](https://flowercastle.straw.page)**
 
 <br>
-
- $\color{#ded7ab}{\textsf{ Strawpage in progress! }}$ <br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=j4je4orn69ob4m7lsnjly67zb&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=cc9a2e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
