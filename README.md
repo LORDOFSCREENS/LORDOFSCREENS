@@ -1,10 +1,10 @@
 
 <div align = "center">
 
-<img src="https://file.garden/akdyLFp1FDtnmq6d/raly.png" alt="" width="450"/><br>
+<img src="https://file.garden/akdyLFp1FDtnmq6d/IMG_2912.png" alt="" width="450"/><br>
 
 <details closed>
-  <summary> ${{\color{#efc88d}  ✿}} $</summary>
+  <summary> ${{\color{#efc88d}  𓄯 }} $</summary>
 <br>
 $\color{#e5b199}{\textsf{Github Name Timeline (as of 2026)}}$
 <br>
