@@ -42,3 +42,5 @@ ${{\color{#db9996} miscellaneous \space acc \space (here) \space}}$
 i may c+h if it’s in your name watch out. this is my multifandom github that’s guaranteed to change :p
 
 ![](https://komarev.com/ghpvc/?username=res0nance-cascade)
+
+**[★](https://pronouns.cc/@Coruscants)**
