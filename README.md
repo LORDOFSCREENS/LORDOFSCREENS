@@ -39,7 +39,10 @@ ${{\color{#db9996} miscellaneous \space acc \space (here) \space}}$
 
 **[GIMMICKS](https://zrankroom.straw.page/) + [RENTRY](https://rentry.co/goldenflowerr)**
 
-i may c+h if it’s in your name watch out. this is my multifandom github that’s guaranteed to change :p
+i only follow people whos skins i like or just think theyre overrall cool. 
+go follow one of my other accs. iwc at all times. -15 dni
+<br>
+i may c+h if it’s in your name watch out. this is my multifandom github that’s guaranteed to change
 
 ![](https://komarev.com/ghpvc/?username=res0nance-cascade)
 
